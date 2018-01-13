@@ -2,5 +2,5 @@
 
 hii everybody
 
-i am an accountant, Project management enthusiast and
-a buuding Business Analyst
+i am an accountant, Project Management Enthusiast and
+a budding Business Analyst
